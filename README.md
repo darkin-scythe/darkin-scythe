@@ -1,4 +1,4 @@
-![](https://i.ibb.co/FhBJccX/GHh-NOIIac-AQ8-J2-L.jpg)
+![](https://i.ibb.co/2tVKDWy/kaynn.png)
 
 <!--
 **darkin-scythe/darkin-scythe** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
